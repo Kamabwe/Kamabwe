@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on stackfull
 - 📫 How to reach me to phone number +243999919454
 - 😄 Pronouns: irenee
-- ⚡ Fun fact: asttonomy
+- ⚡ Fun fact: astronomy
 
 <!---
 Kamabwe/Kamabwe is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
